@@ -6,4 +6,6 @@ free netflix account | no shit no scam fucking here &lt;3
 
 For proof <3
 
-https://media.discordapp.net/attachments/889333123945492490/941641193274605598/Screenshot_2022-02-11_212449.jpg
+![Screenshot 2022-02-11 212449](https://user-images.githubusercontent.com/95067718/153575609-5eb8f17f-470d-4034-9b1f-e5a6257bdd68.jpg)
+
+fluro#0009 bxxxby <3
